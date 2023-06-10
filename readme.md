@@ -12,3 +12,13 @@
 Гра перекладається з англійської мови.\
 Поступ перекладу **0%**\
 Посилання на проєкт: 
+
+```diff
+- text in red
++ text in green
+! text in orange
+# text in gray
+@@ text in purple (and bold)@@
+```
+
+$${\color{red}Red}$$
