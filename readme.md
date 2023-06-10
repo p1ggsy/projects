@@ -1,5 +1,5 @@
 # **Mafia: Definitive Edition (2020)**
-[imgalt]https://img.hurtom.com/i/2022/12/Mafia_Definitive_Edition.jpg[/imgalt]
+[![LOGO_MAFIA1_DE_TRANS_BG_copy](https://i.im.ge/2023/06/10/iF82u9.LOGO-MAFIA1-DE-TRANS-BG-copy.png)](https://im.ge/i/iF82u9)
 
 **Жанр:** Shooter, Action
 **Розробник:** Hangar 13
