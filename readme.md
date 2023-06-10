@@ -7,7 +7,8 @@
 
 
 ## **Знятки:**
-[![https://img.hurtom.com/i/2022/12/Mafia-Definitive-Edition-Screenshot-2022.12.30---14.18.44.92.th.png](https://img.hurtom.com/i/2022/12/Mafia-Definitive-Edition-Screenshot-2022.12.30---14.18.44.92.th.png)](https://img.hurtom.com/i/2022/12/Mafia-Definitive-Edition-Screenshot-2022.12.30---14.18.44.92.png) [![https://img.hurtom.com/i/2022/12/Mafia-Definitive-Edition-Screenshot-2022.12.30---14.07.13.24.th.png](https://img.hurtom.com/i/2022/12/Mafia-Definitive-Edition-Screenshot-2022.12.30---14.07.13.24.th.png)](https://img.hurtom.com/i/2022/12/Mafia-Definitive-Edition-Screenshot-2022.12.30---14.07.13.24.png)
+[![Mafia-Definitive-Edition-Screenshot-2022.12.30---14.18.44.92](https://i.im.ge/2023/06/10/iFZmTX.Mafia-Definitive-Edition-Screenshot-2022-12-30-14-18-44-92.md.png)](https://i.im.ge/2023/06/10/iFZmTX.Mafia-Definitive-Edition-Screenshot-2022-12-30-14-18-44-92.png)
+[![Mafia-Definitive-Edition-Screenshot-2022.12.30---14.07.13.24](https://i.im.ge/2023/06/10/iFZ9R9.Mafia-Definitive-Edition-Screenshot-2022-12-30-14-07-13-24.md.png)](https://i.im.ge/2023/06/10/iFZ9R9.Mafia-Definitive-Edition-Screenshot-2022-12-30-14-07-13-24.png)
 ## **Про переклад:**
 Гра перекладається з англійської мови.\
 Поступ перекладу **0%**\
