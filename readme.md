@@ -1,5 +1,5 @@
 # **Mafia: Definitive Edition (2020)**
-[![LOGO_MAFIA1_DE_TRANS_BG_copy](https://i.im.ge/2023/06/10/iF82u9.LOGO-MAFIA1-DE-TRANS-BG-copy.png)](https://im.ge/i/iF82u9)
+[![Mafia_-_Definitive_Edition_logo](https://i.im.ge/2023/06/10/iF8S9X.Mafia-Definitive-Edition-logo.md.png)](https://im.ge/i/iF8S9X)
 
 **Жанр:** Shooter, Action
 **Розробник:** Hangar 13
