@@ -1,4 +1,4 @@
-[font="Tahoma"]## **Mafia: Definitive Edition (2020)**[/font]
+# **Mafia: Definitive Edition (2020)**
 [imgalt]https://img.hurtom.com/i/2022/12/Mafia_Definitive_Edition.jpg[/imgalt]
 
 **Жанр:** Shooter, Action
